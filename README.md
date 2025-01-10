@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @saitamoshi
-- ⚡ 
+- ⚡ saitamoshi@coinos.io
